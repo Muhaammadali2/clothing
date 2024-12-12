@@ -1,1 +1,2 @@
 # clothing
+This brand offers a range of comfortable and stylish clothing, from soft cotton pajamas to cozy bathrobes. Whether you're looking for festive matching sets or everyday loungewear, there’s something for everyone including the [latest and new arrival pieces](https://www.leveret.com/collections/new-arrivals). The collection combines comfort and style, making it perfect for relaxing at home or lounging with the family in cozy, breathable fabrics.
